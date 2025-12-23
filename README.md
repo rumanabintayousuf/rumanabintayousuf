@@ -1,5 +1,8 @@
 # Hi, I'm Rumana 👋  
 ### Applied Mathematics Graduate | Data Science & Machine Learning Enthusiast  
+![WhatsApp Image 2025-12-23 at 4 24 19 PM](https://github.com/user-attachments/assets/fb8f2ea1-0d8d-44fe-a845-98657e78d53a)
+
+
 
 🚀 Transforming **mathematical foundations** into **data-driven solutions**  
 📊 Passionate about **Data Analysis, Machine Learning & Visualization**  
